@@ -9,7 +9,7 @@
 - There is one more thing about me, but for that you have to decypher this ↓↓
 - Kvu"ku"swkgv"kortguukxg"vjcv"{qw"ocpcigf"vq"tgcej"jgtg"Dwv"{qw"jcxg"vq"fq"kv"qpg"ncuv"vkog"cpf"vjku"yknn"dg"oqtg"fkhhkewnv"Jgtg"kv"ku"":::2::;2:2:88;968;96:796:7:6:7969:92:7:2:7929999;2:2:8:79588:7968899:6:2:::596:792:6:29;94:6
 - Level 1 Hint - Make a program for this it will become a lot easier
-- Level 2 Hint - Contact Me on discord @madglog#6284
+- Level 2 Hint - Contact Me on discord @madglog#6284 or mail me @madglog@gmail.com
 
 <br />
 
