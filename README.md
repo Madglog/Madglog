@@ -1,4 +1,4 @@
-# Hi there, Madhav Dogra [Madhavdogra][website] 👋
+# Hi there, I am [Madhav dogra][website] 👋
 
 ## I'm a 15 years old, love coding, gadgets and technology, 
 
