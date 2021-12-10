@@ -1,6 +1,6 @@
 # Hi there, I am [Madhav dogra][website] 👋
 
-## I'm a 15 years old, love coding, gadgets and technology, 
+## I'm a 16 years old, love coding, gadgets and technology, 
 
 - Interested in projects with DL, AI amd ML 
 - Learning - JavaScript, TypeScript and  Node.js
