@@ -10,7 +10,7 @@
 
 ## About Me
 
-AI/ML Researcher exploring the intersection of mathematics and artificial intelligence. Currently pursuing B.Tech in Computer Science at Vellore Institute of Technology with a CGPA of 9.25.
+AI/ML Researcher exploring the intersection of mathematics and artificial intelligence. Currently pursuing B.Tech in Computer Science at Vellore Institute of Technology with a CGPA of 9.32.
 
 I'm passionate about making education accessible and building innovative solutions at the convergence of mathematics, cryptography, and machine learning.
 
